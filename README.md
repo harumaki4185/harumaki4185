@@ -7,6 +7,6 @@
 
 ###### >domein
 
-sabannatihooo.work  X
-sabannatihooo.com.  X
-harumaki4185.com.   X
+sabannatihooo.work  X. 
+sabannatihooo.com.  X. 
+harumaki4185.com.   X. 
